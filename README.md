@@ -7,3 +7,5 @@ Muchas gracias por el apoyo y la participación, atentos a los nuevos CTF que re
 https://twitter.com/SombreroBlanc0
 
 https://t.me/sombreroblanco
+
+https://www.linkedin.com/company/sombreroblanco/
